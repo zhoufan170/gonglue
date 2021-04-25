@@ -34,3 +34,36 @@ https://item.m.jd.com/product/7444741.html?wxa_abtest=o&gx=RnEyy28NbzDfw9Rf99syC
 
 # 总计2444-2544
 
+
+
+## 🐷
+
+### 白酒：**洋河蓝色经典 梦之蓝M6 52度 礼盒装 500ml\*2瓶高度白酒 口感绵柔浓香型**
+
+https://item.m.jd.com/product/6101238.html?wxa_abtest=o&gx=RnEyy28NbzDfw9Rf99syC9dibQ&ad_od=share&utm_source=androidapp&utm_medium=appshare&utm_campaign=t_335139774&utm_term=CopyURL
+
+### 1696
+
+### 化妆品：**百雀羚套装 抗皱紧致水乳补水护肤化妆品套装女 肌初赋活致臻礼盒（水90ml+乳90ml+面霜50g+眼霜20g）**
+
+https://item.m.jd.com/product/5076794.html?wxa_abtest=o&gx=RnEyy28NbzDfw9Rf99syC9dibQ&ad_od=share&utm_source=androidapp&utm_medium=appshare&utm_campaign=t_335139774&utm_term=CopyURL
+
+#### 659
+
+### 奶粉：**伊利欣活 中老年奶粉900g\*2罐装 成人奶粉 益生菌高钙 中老年人无蔗糖早餐牛奶粉 中老年900g\*2罐**
+
+https://item.m.jd.com/product/10023175212343.html?wxa_abtest=o&gx=RnEyy28NbzDfw9Rf99syC9dibQ&ad_od=share&utm_source=androidapp&utm_medium=appshare&utm_campaign=t_335139774&utm_term=CopyURL
+
+#### 140
+
+### 枸杞：**北京同仁堂 黑枸杞 黑果枸杞礼盒装（50g\*2罐） 青海柴达木黑果免洗枸杞子**
+
+https://item.m.jd.com/product/100007511015.html?wxa_abtest=o&gx=RnEyy28NbzDfw9Rf99syC9dibQ&ad_od=share&utm_source=androidapp&utm_medium=appshare&utm_campaign=t_335139774&utm_term=CopyURL
+
+#### 299
+
+### 水果：好一点的果篮，盐城购买 
+
+#### 100+?
+
+### 皮带/手环/其他？？？
